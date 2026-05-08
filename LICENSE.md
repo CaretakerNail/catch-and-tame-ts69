@@ -1,4 +1,4 @@
-
+smart catch and tame Scripts is the best catch and tame Script, featuring instant win and auto-farm. Safe and powerful for all your needs.
 
 
 
